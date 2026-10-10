@@ -1,0 +1,1 @@
+# Patenet-google-Zasilacz-UPS-na-akumulator-kwantowy
